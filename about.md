@@ -11,9 +11,9 @@ I'm a recent Computer Science and Mathematics graduate from Kansas State Univers
 I'm from a small town just outside Kansas City called Spring Hill, KS. In college, I was involved in a lot of organizations, but a few of my favorites were:  
   
 - [Acacia](http://acaciaksstate.org/) where I was Risk Management Chairman
-- [Student Governing Association](https://ksu.edu/sga)
-- [Union Governing Board](https://union.ksu.edu)
-- [Scholars Assisting Scholars Tutoring](https://engg.ksu.edu/sas)
+- [Student Governing Association](https://ksu.edu/sga) where I was Treasurer
+- [Union Governing Board](https://union.ksu.edu) where I was President
+- [Scholars Assisting Scholars Tutoring](https://engg.ksu.edu/sas) where I tutored various engineering classes
   
 In Kansas as well as Wisconsin, I have gotten involved with political campaigns at the national, state and local level. I love knocking on doors to try and make my communities a better place for all. I also volunteer for [Habitat for Humanity](https://www.habitat.org/) and have worked with [100 Black Men of Madison](https://www.100blackmenmadison.org/) through John Deere. Outside of volunteering, I am an avid film and television connoisseur and have recently started writing short movie reviews after watchings. I also recently decided to go back to Kansas State (virtually) to work on my Master of Science in Data Analytics degree.
 
